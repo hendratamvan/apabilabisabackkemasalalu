@@ -1,2 +1,1 @@
-# apabilabisabackkemasalalu
-oh saja
+YANG INTIP NI REPO YAPIT
